@@ -1,1 +1,1 @@
-# Certificate
+# Certificate OF Participation
